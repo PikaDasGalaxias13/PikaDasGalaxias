@@ -1,1 +1,1 @@
-# odeio viver no memsmo mundo que ela
+20comer 70correr 100escapatória
